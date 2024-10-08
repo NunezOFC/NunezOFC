@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @NunezOFC
+- 👀 I’m interested in games and Programming
+- 🌱 I’m currently learning Python and HTML
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: fat nerd kid
